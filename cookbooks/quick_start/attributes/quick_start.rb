@@ -1,0 +1,1 @@
+deep_thought "I don't like baseball, I like plankton."
